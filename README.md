@@ -1,1 +1,3 @@
-# Aditya-javascript.js
+# __LEGENDHACKER__
+ 
+  <dfs> java , python . php . shell. 
